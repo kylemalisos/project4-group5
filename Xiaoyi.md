@@ -1,5 +1,5 @@
 I come from China.
 
-University of Missouri
+I'm an undergradute student at University of Missouri
 
-One-children
+I'm from One-children family.
